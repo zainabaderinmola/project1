@@ -1,1 +1,0 @@
-# wejapa-project1
